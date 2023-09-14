@@ -1,3 +1,3 @@
-### Hi there 👋
+### Hi there ☀️
 
-# Mariia, spbpu, saint p.
+I'm a student of Peter the Great St.Petersburg Polytechnic University, direction "Radio Engineering"
